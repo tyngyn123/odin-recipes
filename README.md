@@ -1,1 +1,2 @@
 # odin-recipes
+This will be showing some of my best recipes and I cook them up to be so fantastic for everyone to eat. This can be done for dinner, parties, depressing outings, or anything of that nature. I hope you enjoy!
